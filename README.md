@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **hyochung@utexas.edu**
 
-- 📄 Know about my experiences [Resume on Linked_In](https://www.linkedin.com/in/hyochung301/overlay/1635550307535/single-media-viewer?type=DOCUMENT&profileId=ACoAAC0xu6MBl-2anzDRmqu4yA5GvT7PBkTRppc&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3Back4LZ5SSj6Lkv4JH0qeTA%3D%3D)
+- 📄 Know about my experiences [Resume on Linked_In](www.linkedin.com/in/hyochung301/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
